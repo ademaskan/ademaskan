@@ -40,7 +40,7 @@
 
 ### 🚀 Let's Connect
 
-- 🌐 [Instagram](https://www.instagram.com/ademaskann/) *(if you have one)*
+- 🌐 [Instagram](https://www.instagram.com/ademaskann/) 
 - 💬 [LinkedIn](https://www.linkedin.com/in/adem-askan)
 
 ---
